@@ -1,10 +1,10 @@
-#CleaningServices
+#Kenya For Kenya's
 
 
 ## What We DO
 
 
 
-- We Train And Helps  Mums Find Home Services Jobs
+- We bring you latest news for Entertainment, Politics, lifestyle and fashion news
 
-- We Bring You cleaners At Your Door Step
+
